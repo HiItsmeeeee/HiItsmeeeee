@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking to collaborate on programming
-- 📫 How to reach me: email 
+- 📫 How to reach me: you dont. people in discord are stalking me.
 - 
 
 <!---
